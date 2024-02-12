@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Developments 
 - 📫 Reach me through my gmail: reddypraneeth839@gmail.com
 - 😄 Pronouns: Praneeth Reddy 
-- ⚡ Fun fact: Success will definitely come,but wait for it until you will got succeed.
+- ⚡ Fun fact: Success will definitely come,but wait for your day.
 
 <!---
 praneethreddytheegala/praneethreddytheegala is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
